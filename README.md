@@ -1,1 +1,1 @@
-# for_fork
+# Sgirinboyev G'ayrat
